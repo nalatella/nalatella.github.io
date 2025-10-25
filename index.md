@@ -1,5 +1,7 @@
-Here you can say lots of fun things about your site.
+Illustrator, aspiring animator, and college student.
 
-Maybe say a some things about yourself.
+About Me: ...
 
-Or maybe what you plan to blog about.
+My Work: ...
+
+Personal Projects: ...
